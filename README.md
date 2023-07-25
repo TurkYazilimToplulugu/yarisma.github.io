@@ -1,1 +1,0 @@
-# yarisma.github.io
